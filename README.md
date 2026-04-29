@@ -45,5 +45,5 @@ Muzon Harmony Hills High School
 
 You may reach me at:
 
-- **LinkedIn:** https://www.linkedin.com/in/ralph-renz-justo/
+- **LinkedIn:** https://www.linkedin.com/in/ralph-renz-justo
 - **Email:** rrmjusto@gmail.com
